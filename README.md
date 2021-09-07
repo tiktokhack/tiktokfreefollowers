@@ -2,7 +2,7 @@
 
 TIkTok HAck - Free TikTok Followers 
 
-[Click Here! TIKTOK HACK - unlimited Followers, Views & Likes for TikTok!](http://github.com)
+[Click Here! TIKTOK HACK - unlimited Followers, Views & Likes for TikTok!](https://barlog.org/tik)
 
 ![TikTok Hack](https://d30womf5coomej.cloudfront.net/a/9a/a48864bb-893c-4be4-a13e-b7bb7bfca9ae.jpg)
 
